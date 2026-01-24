@@ -128,6 +128,7 @@ This work is oriented toward:
   https://resilient-fowl-345.notion.site/2f26b1e6212380259339e0c2e9b5f7ae?v=2f26b1e6212380eb8873000c5ba92a2c&source=copy_link
 https://resilient-fowl-345.notion.site/WORKING-METHODOLOGY-PROFESSIONAL-PRACTICE-Cinematic-Systems-Visual-Design-and-AI-Integrated-Film-2f26b1e6212380f1a83beb2775a03f00?source=copy_link
 
+https://open.substack.com/pub/hardikzayne/p/why-cinematic-realism-fails-before?utm_source=share&utm_medium=android&r=7au504
 
 - **YouTube — Zayne Studios**  
   https://youtube.com/@zayne.studios?si=nQ-NZ5_mhA-mmNIz
