@@ -120,6 +120,23 @@ This work is oriented toward:
 
 —not audience building or influencer metrics.
 
+Selected Professional Work
+
+• Mahabharata Pilot (AI-assisted cinematic project)
+  Role: AI Visual Development
+  Collaboration with filmmaker Sagar Chogle
+  Scope: Visual system development, cinematic consistency, AI-assisted shot design
+
+• Feature Film Project (South Indian Cinema – Confidential)
+  Role: AI VFX Lead
+  Scope: Design and supervision of AI-integrated VFX pipelines at production scale
+  Status: Ongoing
+
+• The Evolve AI
+  Role: Co-Founder & AI Creative Director
+  Scope: Creative systems design and AI-driven visual production for long-form projects
+  Typical engagement scale: year-long production collaborations
+
 ---
 
 ## Links & Professional Presence
